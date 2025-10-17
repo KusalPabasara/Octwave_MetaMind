@@ -280,4 +280,3 @@ For issues or questions:
 
 ---
 
-**Good luck with the competition! 🎉**
